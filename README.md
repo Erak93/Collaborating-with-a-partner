@@ -1,10 +1,5 @@
-# Collaborating-with-a-partner
+#Boooooo#
 
-Pepper spied at you
+**fainted**
 
 
-Gia's bio: 29 yo,Italian
-
-Pizza
-
-Dog means cat
