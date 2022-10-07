@@ -1,9 +1,11 @@
-# Collaborating-with-a-partner
+#Boooooo#
+
 
 
 Gia's bio: 29 yo,Italian
 
-Pizza
+**fainted**
+
 
 Dog means cat
 
@@ -15,6 +17,5 @@ No! cat means dog
 
 
 GIA WAS HERE
-
 
 
